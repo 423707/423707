@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming,design and cooking 
 - 🌱 I’m currently learning programming 
 - 💞️ I’m looking to collaborate on studying 
-- 📫 How to reach me via email @hafsatsaeed815@gmail.com
+- 📫 How to reach me via email @hafsatsaeed715@gmail.com
 - 😄 Pronouns: chefhafsat
 - ⚡ Fun fact: ...
 
